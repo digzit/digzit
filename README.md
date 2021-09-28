@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **aurelien.digout@gmail.com**
 
-- ⚡ Fun fact **I ❤️ Skydiving**
+- **I ❤️ Skydiving** and **tech**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
